@@ -8,3 +8,13 @@ Harry Hole ist die Hauptfigur in einer Krimireihe von Joe Nesbo. Harry ist Spezi
 * Deren Sohn: Olek
 * Sein Vater: Olav
 * Seine Schwester: Sos
+
+
+Jo nesbø lässt im Roman "Messer" Harry folgende zu ihm passende Lebensweisheit äußern:
+
+> Aber Glück ist wie Heroin, hat man es erst probiert, hat man erst erfahren,
+> dass es das Glück wirklich gibt, findet man sich nie mehr mit dem gewöhnlichen,
+> glücklosen Leben ab. Denn Glück ist etwas anderes als Zufriedenheit.
+> Glück ist unnatürlich. Ein zitternder Ausnahmezustand, Sekunden, Minuten
+> Tage, von denen man weiß, dass sie nicht ewig andauern werden.
+

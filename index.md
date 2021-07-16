@@ -18,3 +18,8 @@ Jo nesbø lässt im Roman "Messer" Harry folgende zu ihm passende Lebensweisheit
 > Glück ist unnatürlich. Ein zitternder Ausnahmezustand, Sekunden, Minuten
 > Tage, von denen man weiß, dass sie nicht ewig andauern werden.
 
+Bild von BedexpStock auf Pixabay
+
+
+<img src="https://owncloud.franziska-hoell-schule.de/owncloud/index.php/s/AiwMwaPdj8LZd7i"/>
+

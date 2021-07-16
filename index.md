@@ -21,5 +21,5 @@ Jo nesbø lässt im Roman "Messer" Harry folgende zu ihm passende Lebensweisheit
 Bild von BedexpStock auf Pixabay
 
 
-<img src="https://owncloud.franziska-hoell-schule.de/owncloud/index.php/s/AiwMwaPdj8LZd7i">
+<img src="https:lawil.spdns.eu/detectivaction.png"/>
 
